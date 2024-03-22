@@ -1,4 +1,25 @@
 # Job-list--remote-jobs
+# Job-search-WorkFromHome
+.
+
+## follw this remote work website's and try to apply ASAP
+
+[Wellfound (formerly AngelList Talent)](https://wellfound.com/jobs)
+
+[Nodesk](https://www.nodesk.fi/)
+
+[We work remotely](https://weworkremotely.com/)
+
+[FlexJobs](https://www.flexjobs.com/)
+[Remotive - Remote Jobs] ([url] (https://remotive.com/))
+
+[Working Nomads](https://www.workingnomads.com/jobs)
+https://remote.co/
+
+[Pangian](https://pangian.com/)
+https://linktr.ee/dynamitejobs
+
+
 ## LIST OF COMPANIES
 
 ### Dream ⭐️⭐️⭐️⭐️⭐️
